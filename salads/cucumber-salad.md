@@ -7,6 +7,8 @@
   - A few slices of red onion (optional).
 
 ## Instructions
-
-- Step 1
-- Step 2
+  - Wash and Dry: If your greens aren't pre-washed, rinse them and dry them well
+    in a salad spinner or with a clean towel. Wet greens will make your dressing watery. 
+  - Chop: Tear or chop the greens into bite-sized pieces and place them in a bowl.
+    Add the chopped cucumber, tomato, and onion.
+  - Mix  
