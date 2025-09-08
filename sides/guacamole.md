@@ -1,5 +1,5 @@
 # Guacamole recipe
-
+Guacamole recipe as a side dish. 
 
 ## Ingredients
 
